@@ -1,5 +1,1 @@
 - 👋 Hi, I’m @rubenschwan
-- 👀 I’m interested in coding and traveling.
-- 🌱 I’m learning something new everyday. 
-- 📫 You can contact me at mail@rubenschwan.com
-- 😄 My pronouns are: he/him
